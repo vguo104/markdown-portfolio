@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[watch i-land!! btw sunghoon and sunoo and absolutely perfect and Niki is talented stfu!](https://iland.weverse.io)
